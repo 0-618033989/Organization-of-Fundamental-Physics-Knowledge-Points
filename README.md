@@ -6,4 +6,4 @@
 希望这份整理出来的知识点能帮助到更多的小登，也向每一位参与整理的同学表示感谢。
 
 第一代参与整理的同学：
-2474 gyl syt xmy xx zjh zwj
+来自2474的 gyl syt xmy xx zjh zwj
